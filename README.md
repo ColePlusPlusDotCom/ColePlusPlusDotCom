@@ -16,7 +16,7 @@ A few other things about me:
 - I like staying active; running and rock climbing are my favorite activities
 - I love collaborating with others and sharing knowledge; I'm a great listener 
 
-To get intouch with me, email me at: Cole@ColePlusPlus.com
+To get in touch with me, email me at: Cole@ColePlusPlus.com
 I'm always intersted in networking and meeting new people, so don't hesitate to reach out if you want to share ideas!
 
 Cole
